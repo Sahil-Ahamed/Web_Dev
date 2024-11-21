@@ -1,4 +1,0 @@
-tevjdbad
-<?
-bfshfuk
-  ?>
